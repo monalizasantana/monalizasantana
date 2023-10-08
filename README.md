@@ -1,6 +1,6 @@
 ## 🚀 Sobre mim
 
- Olá! Eu sou Monaliza Santana 😊, sou APAIXONADA por tecnológia, sou desenvolvedora web Jr com conhecimento em HTML, CSS, Javascript, React.JS, github, java, c++, C#. Mas nada obsta que eu possa aprender novas tecnologias de correspondência. Trabalho com responsabilidade e atenção aos colegas. Quero muito entrar na mercado de trabalho e crescer junto com empresa, bem como me aperfeiçoar cada vez mais com novas tecnologias para ser um profissional de referência. Tenho disponibilidade para mudar de cidade.
+ Olá! Eu sou Monaliza Santana 😊, sou APAIXONADA por tecnológia, sou desenvolvedora web Jr com conhecimento em HTML, CSS, Javascript, React.JS, github, java, c++, C#. Mas nada obsta que eu possa aprender novas tecnologias de correspondência. Trabalho com responsabilidade e atenção aos colegas. Quero muito entrar na mercado de trabalho e crescer junto com empresa, bem como me aperfeiçoar cada vez mais com novas tecnologias para ser uma profissional de referência. Tenho disponibilidade para mudar de cidade.
 
 ## Conecte-se comigo
 
